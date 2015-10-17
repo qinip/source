@@ -1,0 +1,1 @@
+About Me---Hi, I'm Eddy. 朋友们都叫我小强。Aquarius. Single dorky male killing time in South California.PhD candidate of political philosophy. Taking the labor of love of studying a renaissance devil. A reliable driver, a fabulous cook, a delightful friend, a man safe with his secrets. {% flickr 4415510519 - %}Email: <a href="mailto:z.ji@live.com">z.ji@live.com</a>
